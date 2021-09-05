@@ -6,4 +6,3 @@
 - 👯 I’m looking to collaborate on Open-Source projects
 - 🤔 I’m looking for help with Development
 - 😄 Pronouns: He/Him
-https://wallpapercave.com/w/wp2757832
